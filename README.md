@@ -1,1 +1,1 @@
-# GLadiators.technology-v2-Rifk7
+# GLadiators.technology v2 | Rifk7
